@@ -10,4 +10,4 @@
 
 本站提供丰富多样的亚洲国产精品资源，分类齐全，更新及时。支持多种播放方式，高清流畅，致力于打造优质观影平台，为用户带来极致体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/but20250709/but17 ）</span>
